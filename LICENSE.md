@@ -1,4 +1,4 @@
-# 
+# Elite KeePass predefinições para Mac OS | Melhor KeePass predefinições para PC Windows. Com segurança de firewall e proteção contra ransomware — otimizado para máximo desempenho em cada plataforma.
 
 
 
